@@ -1,4 +1,4 @@
-# 
+# Enhance GIMP for PC | GIMP for Windows with new GIMP for PC | GIMP for Windows Plugin | AI-enhanced-tools + custom-brushes, the #1 plugin. Includes AI-enhanced-tools and
 
 
 
